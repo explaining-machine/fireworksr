@@ -1,1 +1,1 @@
-### Thingking Machine (fireworksr)
+### Explaining Machine (fireworksr)
